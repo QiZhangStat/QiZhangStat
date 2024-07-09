@@ -1,4 +1,4 @@
-## About Me
+## Qi Zhang (张启)
 I am Qi Zhang (张启)， an associate professor in statistics in the Department of Mathematics and Statistics at University of New Hampshire (UNH).
 Here are my [UNH page](https://ceps.unh.edu/person/qi-zhang), [GitHub](https://github.com/QiZhangStat), and [ResearchGate](https://www.researchgate.net/profile/Qi-Zhang-162)
  
