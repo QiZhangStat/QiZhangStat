@@ -24,6 +24,6 @@ You can reach me at [qi.zhang2@unh.edu].
 
 ## Interests outside work
 - Spending time with my family.
-- Reading/Listening on philosophy, archaeology (before iron age), history, sociology, anthropology, various non-fictions, fictions, and sci-fi.
+- Reading/Listening on philosophy, archaeology (before iron age), history, sociology, anthropology, various non-fictions, fictions, especially sci-fi.
 - Listening classical musics, rock, metal
 - Playing soccer (watching sports is not a sport), weight lifting, running, swimming.
